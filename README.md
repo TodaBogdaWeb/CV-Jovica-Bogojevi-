@@ -1,2 +1,2 @@
-# CV-Jovica-Bogojevi-
+# CV-Jovica-Bogojevic
 CV-English version
